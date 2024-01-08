@@ -1,1 +1,1 @@
-пустая строка
+No code No pain
